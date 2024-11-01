@@ -1,33 +1,31 @@
-# Science is organized knowledge. Wisdom is organized life. Immanuel Kant
+"In the end, it's not the years in your life that count. It's the life in your years." Abraham Lincoln
 
-#
+"The greatest day in your life and mine is when we take total responsibility for our attitudes. That's the day we truly grow up." John C. Maxwell
 
-# Doubt is the origin of wisdom. Augustine of Hippo
+"Life is not a problem to be solved, but a reality to be experienced." Soren Kierkegaard
 
-#
+"What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds." Wayne Dyer
 
-# The truest wisdom is a resolute determination. Napoleon Bonaparte
+"Life is ten percent what happens to you and ninety percent how you respond to it." Lou Holtz
 
-#
+"Believe that life is worth living and your belief will help create the fact." William James
 
-# Wisdom is not a product of schooling but of the lifelong attempt to acquire it. Albert Einstein
+"The only disability in life is a bad attitude." Scott Hamilton
 
-#
+"Too often we underestimate the power of a touch, a smile, a kind word, a listening ear, an honest compliment, or the smallest act of caring, all of which have the potential to turn a life around." Leo Buscaglia
 
-# Wisdom is the power to put our time and our knowledge to the proper use. Thomas J. Watson
+"Life isn't about finding yourself. Life is about creating yourself." George Bernard Shaw
 
-#
+"There is more to life than increasing its speed." Mahatma Gandhi
 
-# A symptom of wisdom is curiosity. The evidence is calmness and perseverance. The causes are experimentation and understanding. Maxime Lagacé
+"Life is really simple, but we insist on making it complicated." Confucius
 
-#
+"Our prime purpose in this life is to help others. And if you can't help them, at least don't hurt them." Dalai Lama
 
-# It is not the man who has too little, but the man who craves more, that is poor. Seneca
+"There are three constants in life...change, choice and principles." Stephen Covey
 
-#
+"Life's most persistent and urgent question is, 'What are you doing for others?" Martin Luther King, Jr.
 
-# A wise man never loses anything, if he has himself. Michel de Montaigne
+"Life is a series of natural and spontaneous changes. Don't resist them--that only creates sorrow. Let reality be reality. Let things flow naturally forward in whatever way they like." Lao Tzu
 
-#
-
-# A fool is known by his speech; and a wise man by silence. Pythagoras
+"Change is the law of life. And those who look only to the past or present are certain to miss the future." John F. Kennedy
